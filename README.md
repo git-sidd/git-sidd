@@ -31,7 +31,7 @@
 
 - 🌱 I’m currently learning Web Development and other programming languages
 
-- 📫 How to reach me **kamleshpawar5278@gmail.com**
+- 📫 How to reach me **siddheshpatole157@gmail.com**
 
 - ⚡ Fun fact :- Food and Music🎵 are the reasons to live.
 
